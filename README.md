@@ -1,16 +1,13 @@
-## Hi there 👋
+## Olá eu sou victor gabriel ⭐
 
-<!--
-**babihomed/babihomed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+gosto de jogar bola🏈 
 
-Here are some ideas to get you started:
+jogo free fire 🎱
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+jogo minecraft🥑
+
+gosto de comer ⏰
+
+gosto de jogar volei🏐
+
+![](https://media.tenor.com/2q7Eut1MTQkAAAAd/ourfriendbarney-barney.gif)
